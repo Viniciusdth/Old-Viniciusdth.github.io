@@ -1,2 +1,0 @@
-# Viniciusdth.github.io
-portifolio
